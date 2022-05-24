@@ -1,0 +1,3 @@
+f70f9ae2212d05dcd2c02de92c0ff3b242470b02(281) 221-9571Y’all write me 4250 hwy 202 beeville, tx 78102-8982 #02374262Nigga imma lyk some i was trying to get you what you wanted could have paid him the 10 out the work then said aye ill give this much for this price id say that be bout 2 so that be 30 knock 10 of that that and you would still made what you would have owed him thats how my thought process  works but my bad for helping
+
+beeville, tx 78102-8982 #02374262ndchcrv3249Saying as in what you mean(832) 569-8399962827content/Screenshot_20220523-201155_Voice.jpggit@github.com:github/docs.gitf70f9ae2212d05dcd2c02de92c0ff3b242470b02Screenshot_20220523-021340_DevInfo.jpg67397023content/vlc-record-2022-05-23-02h02m40s.mp4
